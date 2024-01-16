@@ -2,7 +2,7 @@
 - 👀 I’m interested in Fashion
 - 🌱 I’m currently learning in school, no specific subject
 - 💞️ I’m looking to collaborate on other fashion and clothes websites
-- 📫 How to reach me: My email
+- 📫 How to reach me: adelynncarson@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love art and design
 
